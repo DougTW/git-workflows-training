@@ -1,3 +1,5 @@
+In the beginning, they didn't speak Latin--but you'd never know it...
+
 **On the Ends of Good and Evil**
 *de Finibus Bonorum et Malorum*
 Cicero. 45 BC
